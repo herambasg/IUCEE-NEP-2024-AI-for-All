@@ -1,0 +1,1 @@
+# IUCEE-NEP-2024-AI-for-All
